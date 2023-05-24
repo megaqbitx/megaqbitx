@@ -2,6 +2,6 @@
 
 🌎 I am interested in complementing both worlds to come up with unique and innovative solutions. 
 
-[Portfolio](https://megaqbitx.github.io)
+
 
 
