@@ -1,6 +1,6 @@
-*Software Developer and Finance Student.*
+*Software Developer and Business Student*
 
-🌎Complementing both worlds to come up with unique and innovative solutions. 
+🌎Complementing both worlds to come up with unique and innovative solutions
 
 
 
